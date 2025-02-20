@@ -1,2 +1,2 @@
 # algebraproblems.github.io
-Unblocked Games
+this is for unblocked games
